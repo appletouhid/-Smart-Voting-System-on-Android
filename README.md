@@ -1,0 +1,2 @@
+# -Smart-Voting-System-on-Android
+Election An Act Of Modern Democracy Where People Reflect Their Opinion In A Formal And Organized Way. To Ensure That Opinion Safe And Secure Online Mobile Voting Slowly But Surely Creating An Impact In This Modern Era. Online Mobile Voting Is Conducted In Using Many Platforms Bear In Mind Which Is Best Suitable That Particular Time And Place. There Are So Many Applications Available To Conduct Online Voting But There Are Too Little That Does All The Jobs In One Place Without Jeopardizing The Security And Indignity Of A Voter.
